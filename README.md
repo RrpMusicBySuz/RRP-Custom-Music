@@ -1,3 +1,5 @@
+<img width="1920" height="1080" alt="dd39dfb11c0554a5" src="https://github.com/user-attachments/assets/ca38a04f-3839-44ef-8378-b7936a27487d" />
+
 ссылка на дискорд поддержку (+подробная инфа) https://discord.gg/djp7zRgGsA
 
 **Как установить магнитолу**
